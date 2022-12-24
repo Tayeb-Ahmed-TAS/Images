@@ -1,1 +1,1 @@
-# My-skill-Logos
+# Logos & Images
